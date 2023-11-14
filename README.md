@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to you love me
 - 💞️ I’m just Junior High School student
 - 📫 How to reach me? you have to compete with him
-- 
+  (*˘︶˘*).｡*♡
 
 <!---
 Celynxxyz/Celynxxyz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
